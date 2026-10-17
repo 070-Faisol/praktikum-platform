@@ -1,6 +1,6 @@
-# Yuris Ikrar Rabbani
+# moh faisol
 
-**2024520028**
+**2024520070**
 
 ---
 
